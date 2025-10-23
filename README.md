@@ -1,1 +1,0 @@
-# Sierra-s-Journal
